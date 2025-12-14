@@ -1,4 +1,4 @@
-# 👋 Hey, I’m **AM MICHEAL C**
+# 👋 Hey, I’m **Ani Micheal Chidubem**
 
 ### Business Intelligence Specialist | Data Strategist | Systems Thinker
 
